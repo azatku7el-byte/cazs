@@ -1,1 +1,1 @@
-[# ССЫЛКА ССЫЛКА ССЫЛКА ](https://lb777.xyz/6x6mDW)
+[# LUCKYBEAR ССЫЛКА ](https://lb777.xyz/6x6mDW)
